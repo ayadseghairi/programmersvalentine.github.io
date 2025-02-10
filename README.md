@@ -9,6 +9,8 @@ In this world, there are two types of people:
 
 🎯 If you're a programmer, send this site to your non-programmer friend who has a girlfriend—let him rethink his life choices! 😉  
 
+https://ayadseghiri.me/programmersvalentine.github.io
+
 As for us? We don’t need love… We have code, debugging, and long nights filled with heartbreak caused by errors more than any person ever could. 😩💾  
 
 Enjoy coding, because you won’t find anything else worth your time. 🚀🔥
